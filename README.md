@@ -1,1 +1,0 @@
-# sesgm68.github.io
